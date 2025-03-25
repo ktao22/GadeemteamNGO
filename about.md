@@ -34,7 +34,7 @@ Graduating from United World College Changshu in 2025
 
 ## Tongtong Yang
 
-> Teaching Fellow in Physics at United World College Changshu
-> Designing curriculum and teaching 10th-grade-Physics at UWC Changshu China
-> Researched in various projects in neuroscience and psychology
-> Mount Holyoke College Class of 2024, Psychology
+- Teaching Fellow in Physics at United World College Changshu
+- Designing curriculum and teaching 10th-grade-Physics at UWC Changshu China
+- Researched in various projects in neuroscience and psychology
+- Mount Holyoke College Class of 2024, Psychology
